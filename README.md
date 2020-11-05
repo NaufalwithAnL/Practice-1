@@ -1,2 +1,3 @@
 # Practice-1
-Mulaiajadulu
+Resolusi-resolusi menuju Naufal Iqbal maju
+
